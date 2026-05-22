@@ -18,6 +18,7 @@ due to being 20 years old i'd prefer if shippers would not interact
 - i do own many alt accs and half of them i forgot the login to (deaththirteen) and all my accs mention me in my bio 
 
 white washers in the twst area yall are weird💔
+DNI SEBEK HATERS 
 <!--
 **KUJOHS/KUJOHS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
