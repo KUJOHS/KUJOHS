@@ -18,24 +18,14 @@ due to being 20 years old i'd prefer if shippers would not interact
 - i do own many alt accs and half of them i forgot the login to (deaththirteen) and all my accs mention me in my bio 
 
 twst thingys:
+
 -ROOK HUNT NATION RISE
 -DNI SEBEK HATERS 
 -ENG ID:wapyHhP8
 -JP ID:WLFJJ3Qr
-- i really like rook,Honest fellow,minhaj,cater,floyd,sebek,jack,idia,trey,jamil&chenya
+- i really like rook,Honest fellow,minhaj,cater,floyd,sebek,
+- jack,idia,trey,
+- jamil&chenya
 - DNI whitewashers
 
 
-**KUJOHS/KUJOHS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
