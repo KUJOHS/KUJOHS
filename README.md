@@ -3,7 +3,7 @@
 due to being 20 years old i'd prefer if shippers would not interact
 
  
-jolyne obession is so bad i made my ponysona her colors
+jolyne obession is so bad i made my kinsona her colors
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
