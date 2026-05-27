@@ -26,7 +26,7 @@ twst thingys:
 -JP ID:WLFJJ3Qr
 - i really like rook,Honest fellow,minhaj,cater,floyd,sebek,
 - jack,idia,trey,
-- jamil&chenya
+- jamil,ruggie,and chenya
 - DNI whitewashers
 
 
