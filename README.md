@@ -20,13 +20,13 @@ jolyne obession is so bad i made my kinsona her colors
 
 twst thingys:
 
--ROOK HUNT NATION RISE
--DNI SEBEK HATERS 
--ENG ID:wapyHhP8
--JP ID:WLFJJ3Qr
+- ROOK HUNT NATION RISE
+- DNI SEBEK HATERS/nsrs
+- ENG ID:wapyHhP8
+- JP ID:WLFJJ3Qr
 - i really like rook,Honest fellow,minhaj,cater,floyd,sebek,
-- jack,idia,trey,
-- jamil,ruggie,and chenya
-- DNI whitewashers
+   - jack,idia,trey,
+-  jamil,ruggie,and chenya
+-  DNI whitewashers
 
 
