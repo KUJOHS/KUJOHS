@@ -14,7 +14,7 @@ jolyne obession is so bad i made my kinsona her colors
 - jojo fan for 7 years
 - twst fan since eng release
 - way tooo many fav jojo characters to list
-  - the ponies i use a lot are characters i find comfort in 
+ - the ponies i use a lot are characters i find comfort in 
 -employed and unfortunately chronically online playtime farming/multitasking/skin making/enjoying the silence
  
 - i do own many alt accs and half of them i forgot the login to (deaththirteen) and all my accs mention me in my bio 
