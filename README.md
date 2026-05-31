@@ -3,7 +3,7 @@
 due to being 20 years old i'd prefer if shippers would not interact
 
  
-jolyne obession is so bad i made my kinsona her colors
+BUSY EVERY MONDAY-FRIDAY FROM 10🕥AM TO 4🕥PM EST
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
