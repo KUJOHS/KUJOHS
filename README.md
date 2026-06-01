@@ -30,5 +30,4 @@ twst thingys:
    - jack,idia,trey,
 -  jamil,ruggie,and chenya
 -  DNI whitewashers
-
-
+- poorly photobashed yuusona ![image](https://files.catbox.moe/lmf86a.png)
