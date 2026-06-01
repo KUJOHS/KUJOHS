@@ -31,4 +31,4 @@ twst thingys:
 -  jamil,ruggie,and chenya
 -  DNI whitewashers
 - poorly photobashed yuusona
-- ![image](https://files.catbox.moe/xi2fqu.png)
+- ![image](https://files.catbox.moe/x3gpd9.png)
