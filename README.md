@@ -20,15 +20,3 @@ BUSY EVERY MONDAY-FRIDAY FROM 10:30AM TO 4:30PM EST
  
 - i do own many alt accs and half of them i forgot the login to (deaththirteen) and all my accs mention me in my bio 
 
-twst thingys:
-
-- ROOK HUNT NATION RISE
-- DNI SEBEK HATERS/nsrs
-- ENG ID:wapyHhP8
-- JP ID:WLFJJ3Qr
-- i really like rook,Honest fellow,minhaj,cater,floyd,sebek,
-   - jack,idia,trey,
--  jamil,ruggie,vil,and chenya
--  DNI whitewashers
-- poorly photobashed yuusona
-- ![image](https://files.catbox.moe/x3gpd9.png)
