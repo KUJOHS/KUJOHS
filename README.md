@@ -3,7 +3,7 @@
 due to being 20 years old i'd prefer if shippers would not interact
 
 
-BUSY EVERY MONDAY-FRIDAY FROM 10:30AM TO 4:30PM EST
+BUSY EVERY MONDAY-FRIDAY FROM 10:30AM TO 6PM EST
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
