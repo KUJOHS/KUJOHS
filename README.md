@@ -2,7 +2,7 @@
  
 due to being 20 years old i'd prefer if shippers would not interact
 
-if u want the @ to one of my many unused github accs just lmk!
+Genuinely dni if u like stroheim bc wtf??😭😭
 
 BUSY EVERY MONDAY-FRIDAY FROM 10AM TO SOMETIMES 6PM EST (UNLESS STATED OTHERWISE)
  
