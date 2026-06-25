@@ -1,6 +1,6 @@
 <div align="center"
  
-due to being 20 years old i'd prefer if shippers would not interact
+pls DO NOT come into my whispers asking me to buy you supporter just bc i can afford it, sorry i have a job??😭
 
 Genuinely dni if u like stroheim bc wtf??😭😭
 
