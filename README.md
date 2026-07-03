@@ -2,8 +2,10 @@
  
 
 
- came back to genshin for Snezhnaya& sandrone IM SO BEHIND IN NODKRAI
-pls DO NOT come into my whispers asking me to buy you supporter just bc i can afford it, sorry i have a job??😭
+- came back to genshin for Snezhnaya&
+  -sandrone IM SO BEHIND IN NODKRAI
+ 
+- pls DO NOT come into my whispers asking me to buy you supporter just bc i can afford it, sorry i have a job??😭
 & 
 Genuinely dni if u like stroheim bc wtf??
 
