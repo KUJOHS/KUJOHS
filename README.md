@@ -8,7 +8,6 @@
 & 
 Genuinely dni if u like stroheim bc wtf??
 
-BUSY EVERY MONDAY-FRIDAY FROM 10AM TO SOMETIMES 6PM EST (UNLESS STATED OTHERWISE)
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
