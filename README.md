@@ -10,7 +10,7 @@
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
-  ![Image](https://files.catbox.moe/wl9shy.jpeg)
+  ![Image](https://files.catbox.moe/wuxlso.png)
 
 - stone ocean connisseur & lover of the color green
 - big jolyne defender
