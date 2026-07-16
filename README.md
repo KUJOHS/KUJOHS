@@ -23,3 +23,5 @@
  
 - i do own many alt accs and half of them i forgot the login to (deaththirteen) and all my accs mention me in my bio 
 & i have the 4th tier activated in game
+![image](https://files.catbox.moe/rfxauh.jpeg)
+my disc user
