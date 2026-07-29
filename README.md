@@ -17,7 +17,7 @@
 - jojo fan for 7 years
 - twst fan since eng release
 - way tooo many fav jojo characters to list
- - the ponies i use a lot are characters i find comfort in
+
    
 - employed and unfortunately chronically online playtime farming/multitasking/skin making/enjoying the silence
  
