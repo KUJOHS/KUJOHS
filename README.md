@@ -12,16 +12,4 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
   ![Image](https://files.catbox.moe/wuxlso.png)
 
-- stone ocean connisseur & lover of the color green
-- big jolyne defender
-- jojo fan for 7 years
-- twst fan since eng release
-- way tooo many fav jojo characters to list
-
-   
-- employed and unfortunately chronically online playtime farming/multitasking/skin making/enjoying the silence
- 
-- i do own many alt accs and half of them i forgot the login to (deaththirteen) and all my accs mention me in my bio 
-& i have the 4th tier activated in game
-![image](https://files.catbox.moe/rfxauh.jpeg)
-my disc user
+find more [here](https://fluffle.cc/%C3%B8ther)
