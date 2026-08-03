@@ -14,5 +14,5 @@
 
 find more [here](https://fluffle.cc/%C3%B8ther)
 
-wowwee  yay thank you @pt-medals ![image](https://files.catbox.moe/ii53v7.jpeg)
-& @pt-hall-of-media ![image](https://files.catbox.moe/cgytij.jpeg)
+wowwee  yay thank you [@pt-medals](https://github.com/pt-medals) ![image](https://files.catbox.moe/ii53v7.jpeg)
+& [@pt-hall-of-media](https://github.com/pt-hall-of-media) ![image](https://files.catbox.moe/cgytij.jpeg)
