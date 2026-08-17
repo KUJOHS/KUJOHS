@@ -6,7 +6,9 @@
  
 - pls DO NOT come into my whispers asking me to buy you supporter just bc i can afford it, sorry i have a job??😭
   
-My awesome pals @maktorian @beoblooms @noIongerhuman @Magispace @homoemo-com
+my jobros [@mak](https://github.com/maktorian) 
+[@beo](https://github.com/beoblooms) [@eden](https://github.com/noIongerhuman) 
+[@gamii](https://github.com/gardenersguilt) [@ezra](https://github.com/homoemo-com)
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
