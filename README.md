@@ -6,7 +6,7 @@
  
 - pls DO NOT come into my whispers asking me to buy you supporter just bc i can afford it, sorry i have a job??😭
   
-
+My awesome pals @maktorian @beoblooms @noIongerhuman @Magispace @homoemo-com
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
