@@ -2,9 +2,7 @@
  
 
 
-- came back to genshin for Snezhnaya& sandrone 
- 
-- pls DO NOT come into my whispers asking me to buy you supporter just bc i can afford it, sorry i have a job??😭
+
 -   AJ USERNAME: MASTERSHKE
   
 - my jobros [@mak](https://github.com/maktorian) 
