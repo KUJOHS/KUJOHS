@@ -1,8 +1,6 @@
 <div align="center"
  
 
-
-
 -   AJ USERNAME: MASTERSHKE
   
 - my jobros [@mak](https://github.com/maktorian) 
@@ -13,7 +11,8 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
   ![Image](https://files.catbox.moe/wuxlso.png)
 
-find more [here](https://fluffle.cc/%C3%B8ther)
+
 
 wowwee  yay thank you [@pt-medals](https://github.com/pt-medals) ![image](https://files.catbox.moe/ii53v7.jpeg)
-& [@pt-hall-of-media](https://github.com/pt-hall-of-media) ![image](https://files.catbox.moe/cgytij.jpeg)
+ [@pt-hall-of-media](https://github.com/pt-hall-of-media) ![image](https://files.catbox.moe/cgytij.jpeg)
+& [@PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) ![image](https://files.catbox.moe/js5hsi.jpeg)
