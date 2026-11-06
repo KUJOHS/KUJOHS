@@ -1,7 +1,7 @@
 <div align="center"
  
 
--   AJ USERNAME: MASTERSHKE
+-  twst fans stop whitewashing the poc characters challenge: level impossible 
   
 - my jobros [@mak](https://github.com/maktorian) 
 [@beo](https://github.com/beoblooms) [@eden](https://github.com/noIongerhuman) 
