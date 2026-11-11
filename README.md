@@ -1,7 +1,7 @@
 <div align="center"
  
 
--  twst fans stop whitewashing the poc characters challenge: level impossible 
+- falling out of interest with twst so apologies to everyone who followed me because we liked the same thing 
   
 - my jobros [@mak](https://github.com/maktorian) 
 [@beo](https://github.com/beoblooms) [@eden](https://github.com/noIongerhuman) 
