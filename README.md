@@ -1,7 +1,7 @@
 <div align="center"
  
 
--“Bro, the stand itself is called Scary Monsters, the series is currently one of the scariest, you're literally a larper.”
+- “Bro, the stand itself is called Scary Monsters, the series is currently one of the scariest, you're literally a larper.”
   
 - my jobros [@mak](https://github.com/maktorian) 
 [@beo](https://github.com/beoblooms) [@eden](https://github.com/noIongerhuman) 
